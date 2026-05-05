@@ -9,4 +9,4 @@
 ## Préparation :
 1. Mélanger les œufs et le sucre
 2. Ajouter la farine et la levure
-3. Cuire au four 30 min à 180°C
+3. Cuire au four 30 min à 190°C
